@@ -1,1 +1,1 @@
-# DiPsychedelis
+# DiPsychedelics
